@@ -1,4 +1,4 @@
-# 
+# Adobe Spark for macOS exclusive Script: preset-packs & AI-enhanced-editing is the best Adobe Spark for macOS script, featuring preset-packs and AI-enhanced-editing. Powerful,
 
 
 
